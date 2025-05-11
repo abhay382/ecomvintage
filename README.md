@@ -8,3 +8,5 @@
 
 
 https://docs.google.com/spreadsheets/d/1FXuYrOvzhefSAR45JYkuOzjkwXpQgWTQp18dhZyY7UI/edit?gid=0#gid=0
+
+https://docs.google.com/document/d/1tuE8yizOmoIw81bRiCmnGgT2cjjznucxqIuumPTaOdE/edit?tab=t.0
